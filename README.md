@@ -1,1 +1,1 @@
-# grundlagen_internationaler_wirtschaft
+# Grundlagen der internationalen Wirtschaft
